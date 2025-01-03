@@ -28,3 +28,8 @@ Study Area: Brandenburg, Germany
 ![Screenshot_17](https://github.com/user-attachments/assets/c1e2b192-e499-402a-abf8-00c09b9f31b7)
 ![Screenshot_18](https://github.com/user-attachments/assets/9230a532-ed67-4eff-ad9e-446d3f809865)
 ![Screenshot_19](https://github.com/user-attachments/assets/706514af-4637-4327-afdb-10b17f91460a)
+![Screenshot_20](https://github.com/user-attachments/assets/d14747c4-7d6f-455a-ba2b-01c547f4cb51)
+![Screenshot_21](https://github.com/user-attachments/assets/1ca7afa6-5585-488a-aa74-8741cc628218)
+![Screenshot_22](https://github.com/user-attachments/assets/f0be6508-275d-47a8-9683-e01ad7e309b0)
+![Screenshot_23](https://github.com/user-attachments/assets/c262e359-7955-4a0b-96e6-a5ec5e998090)
+![Screenshot_24](https://github.com/user-attachments/assets/d98d0dae-d50a-4421-8238-3eed0891c0b0)
